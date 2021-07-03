@@ -10,4 +10,9 @@ The mad lads who started it all, to clean that piece of ~~shit~~ chadness off th
 ## ze Haters
 The people who have their eyes opened, have been enlightened and truly see the little chad for what he is worth
 
--
+- [Rujal Acharya](https://github.com/RujalAcharya)
+- [Aabhusan Aryal](https://github.com/aabhusanaryal)
+- [Prabigya Acharya](https://github.com/PrabigyaAcharya)
+- [Suban](https://github.com/suban244)
+- [Jha](https://github.com/jhashwat)
+- 
