@@ -13,6 +13,7 @@ The people who have their eyes opened, have been enlightened and truly see the l
 - [Rujal Acharya](https://github.com/RujalAcharya)
 - [Aabhusan Aryal](https://github.com/aabhusanaryal)
 - [Prabigya Acharya](https://github.com/PrabigyaAcharya)
+- [Mohit Agrawal](https://github.com/MoAgr)
 - [Suban](https://github.com/suban244)
 - [Jha](https://github.com/jhashwat)
-- 
+- You? - [SignUp!](https://bit.ly/zeWHN)
