@@ -16,4 +16,6 @@ The people who have their eyes opened, have been enlightened and truly see the l
 - [Mohit Agrawal](https://github.com/MoAgr)
 - [Suban](https://github.com/suban244)
 - [Jha](https://github.com/jhashwat)
+- [Suku](sukuman567@gmail.com)
+- [Bishad Koju](https://www.github.com/Bishadkoju)
 - You? - [SignUp!](https://bit.ly/zeWHN)
