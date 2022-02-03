@@ -12,9 +12,12 @@ The people who have their eyes opened, have been enlightened and truly see the l
 
 - [Rujal Acharya](https://github.com/RujalAcharya)
 - [Aabhusan Aryal](https://github.com/aabhusanaryal)
+- [Aditi Kharel](https://github.com/aditikharel)
 - [Prabigya Acharya](https://github.com/PrabigyaAcharya)
 - [Mohit Agrawal](https://github.com/MoAgr)
+- [Rohan Acharya](https://github.com/rohanacharya38)
 - [Suban](https://github.com/suban244)
+- [Sumit Aryal](https://github.com/sumitaryal)
 - [Jha](https://github.com/jhashwat)
 - [Suku](sukuman567@gmail.com)
 - [Bishad Koju](https://www.github.com/Bishadkoju)
